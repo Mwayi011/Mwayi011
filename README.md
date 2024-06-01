@@ -2,8 +2,6 @@
 
 👀 I’m interested in story telling using data.
 
-🌱 I’ve recently graduated from my data analytics studies and look forward to pursuing my own projects.
+🌱 I look forward to getting involved in more opportunities related to data.
 
-📫 I can be reached at mwayi@careerfit.co.za.
-
-⚡ Fun fact: I love boxing!
+📫 I can be reached at mwayisosola@gmail.com
