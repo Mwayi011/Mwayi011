@@ -8,4 +8,5 @@ In my most recent role I made use of my data analytics skills to identify and gr
 
 Languages & Tools
 
-![Uploading image.png…]()
+![image](https://github.com/Mwayi011/Mwayi011/assets/162637586/3cb727d2-1f06-4a8b-82ea-da1366d8d4e5)
+
